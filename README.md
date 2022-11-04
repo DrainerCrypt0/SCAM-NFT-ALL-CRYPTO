@@ -1,4 +1,4 @@
-# SCAM-NFT-ALL-CRYPTO NEW!!
+# SCAM-NFT-ALL-CRYPTO NEW!
 DRAINER (NFT, ETH, ERC-20 USDT USDC ETC...
 
 📩 DM us here: https://t.me/CresusETH
